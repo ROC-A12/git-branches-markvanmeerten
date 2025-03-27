@@ -10,7 +10,7 @@
 
 ## Bereiding
 
-1. Verwarm de oven voor op 200°C.
+1. Verwarm de oven voor op 180°C.
 2. Meng bloem, boter en sugar tot een kruimelig deeg.
 3. Voeg het ei toe en kneed tot een bal.
 4. Snijd de appels in stukjes.
