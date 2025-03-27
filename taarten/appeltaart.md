@@ -2,7 +2,7 @@
 
 ## Ingrediënten
 
-- 200g flower
+- 200g bloem
 - 150g botter
 - 100g suiker
 - 1 ei
@@ -10,8 +10,8 @@
 
 ## Bereiding
 
-1. Pre-heat de oven voor op 180°C.
-2. Mix bloem, boter en sugar tot een kruimelig deeg.
+1. Verwarm de oven voor op 180°C.
+2. Meng bloem, boter en sugar tot een kruimelig deeg.
 3. Voeg het ei toe en kneed tot een bal.
 4. Snijd de appels in stukjes.
 5. Verdeel het deeg in de taartvorm en voeg de appels toe.
